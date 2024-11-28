@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kristynamsrv
-- baddie v tom IT dočasně ig teď na chvíli 
+- baddie v tom IT dočasně  
 - 👀 I’m interested in muži se soundcloudem
 - 📫 How to reach me:poštovním holubem
 - 😄 Pronouns:entita
